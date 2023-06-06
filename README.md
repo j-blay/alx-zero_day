@@ -1,1 +1,1 @@
-my first readme
+stressful yet fulfilling 
